@@ -1,1 +1,0 @@
-Teo way sign laanguage
